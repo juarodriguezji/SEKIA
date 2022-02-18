@@ -1,1 +1,1 @@
-# SEKIA
+# SEKIA ERA UN TIMO :)
